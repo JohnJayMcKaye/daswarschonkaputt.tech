@@ -1,6 +1,5 @@
-# Unser Podcast macht 10 Tage Pause
+# DWSK
 
-Ihr könnt die letzte Folge hier Hören
 
 ## Wir Arbeiten drann dass du uns bald wieder wie gewoht hören kannst
 
